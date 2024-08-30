@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @intanolivia
 - 👀 I’m interested in logistics and supply chain operations
-- 🌱 I’m currently learning basic R and Phyton
+- 🌱 I’m currently learning Phyton and r language
 - ⚡ Fun fact: I am a chicken noodle addicted
 
 <!---
