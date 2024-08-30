@@ -2,11 +2,11 @@
 
  👋 Hi, I’m Olivia
  
- 👀 Don't explore my profile, cause I’m just newbie in here
+ 👀 Don't explore my profile, cause I’m just newbie here
 
  🌱 I’m currently learning to use Github, lol
  
- ⚡ Let's connect to LinkedIn! 
+ ⚡ Happy working! 
 
 
 
