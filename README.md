@@ -1,10 +1,9 @@
-![PIXECT-20230831215503](https://github.com/user-attachments/assets/6788422f-bbc6-42bc-8168-8df18f47323b)
+![loveia](https://github.com/user-attachments/assets/83f4d5d5-b382-40fd-b872-fff08a540c01)
 
  👋 Hi, I’m Olivia
  
  👀 Don't explore my profile, cause I’m just newbie in here
 
- 
  🌱 I’m currently learning to use Github, lol
  
  ⚡ Let's connect to LinkedIn! 
