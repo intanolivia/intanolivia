@@ -1,4 +1,4 @@
-![loveia](https://github.com/user-attachments/assets/83f4d5d5-b382-40fd-b872-fff08a540c01)
+ https://github.com/user-attachments/assets/0aa08132-9023-44a5-a37b-10e02e56cae6
 
  👋 Hi, I’m Olivia
  
